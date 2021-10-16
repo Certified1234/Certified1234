@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Certified1234
 - 👀 I’m interested in music and gaming
 - 🌱 I’m currently learning basic photoshop skills
-- 💞️ I’m looking to collaborateing on music and 3d molding 
+- 💞️ I’m looking forward to collaborateing on music and 3d molding 
 - 📫 How to reach me.....? here 
 
 <!---
